@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @obnoxiousman.
+- 👀 I’m interested in learning basically anything.
+- 🌱 I’m currently learning programming/cybersecurity/penetration testing.
+- 💞️ I’m looking to collaborate to develop an app.
+- 📫 How to reach me instagram - @The_obnoxious_gentleman
